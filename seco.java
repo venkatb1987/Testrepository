@@ -1,0 +1,7 @@
+
+
+{printf(skjnksndn)
+
+ksdnxcklnsk}
+
+lqskxcnlkqsncxkqlnsxckqonsdwqo
